@@ -2,6 +2,7 @@
  👀 I’m interested in  Software development 
 - 🌱 I’m have learned C, Java, Html and CSS and Python
  💞️ I’m looking to collaborate with  job as a fresher...
+I am a proactive person ,and I have strong communication Skills also.
 - 📫 You can contact me through mail: hasma200114@gmail.com  ...
 
 <!---
